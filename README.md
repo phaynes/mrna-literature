@@ -7,3 +7,9 @@
 
 Rosenblum, Hannah (2021). Pfizer-BioNTech COVID-19 vaccine and myocarditis in individuals aged 16-29 years : Benefits-risk discussion. 202110(100105). 
 
+
+https://stacks.cdc.gov/view/cdc/109495
+https://stacks.cdc.gov/view/cdc/109495
+https://corical.immunisationcoalition.org.au/docs/pfizer_assumptions_10_05_23.pdf
+
+
