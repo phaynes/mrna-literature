@@ -13,3 +13,11 @@ https://stacks.cdc.gov/view/cdc/109495
 https://corical.immunisationcoalition.org.au/docs/pfizer_assumptions_10_05_23.pdf
 
 
+https://corical.immunisationcoalition.org.au/docs/pfizer_assumptions_10_05_23.pdf
+
+https://www.health.gov.au/sites/default/files/2024-01/covid-19-vaccination-guidance-on-myocarditis-and-pericarditis-after-covid-19-vaccines.pdf
+
+https://www.health.gov.au/sites/default/files/2024-01/covid-19-vaccination-guidance-on-myocarditis-and-pericarditis-after-covid-19-vaccines.pdf
+
+
+
