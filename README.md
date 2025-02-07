@@ -3,5 +3,5 @@
 
 
 ![Victorian Dr's Reviewing COVID Numbers from Israel]
-(https://www.youtube.com/watch?v=JLMbpiywVxQ]
+(https://youtu.be/L9vgxCQAXHs?si=SJ3kh9xNTm6YjQIE&t=271)
 
